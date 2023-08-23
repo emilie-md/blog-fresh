@@ -1,5 +1,5 @@
 ---
-title: This is my first blog post!
+title: Don't ask why 🍳
 published_at: Wed 23 Aug 2023
 snippet: I love Gudetama so much and it is my God.
 ---
