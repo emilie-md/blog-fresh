@@ -10,6 +10,8 @@ I love Gudetama so much and it is my God.
 
 Please like and subscribe if you agree Gude is all mighty.
 
+Once upon a time life was dark and cold when suddenly I discovered Gude the lethargic egg and suddenly I got re-employed.
+
 
 Bey!
 
