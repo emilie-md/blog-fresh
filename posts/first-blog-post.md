@@ -19,4 +19,4 @@ Bey!
 
 P.S. The gude illuminati
 
-![Gude is beautiful!](/gude-in-a-raincoat.png "Gude gude what a drag")
+![How beautiful can Gude get? This beautiful!](/gude-illuminati.png "Wow, terrible!")
